@@ -1,5 +1,5 @@
 # 👋 Hi, I'm Dennis Avorkliyah
-**IT Support Specialist | Aspiring Cybersecurity Analyst | Skilled in Troubleshooting & Creative Problem Solving | CompTIA Security+ Certified**
+**IT Support Specialist | Aspiring Cybersecurity Analyst | CompTIA Security+ Certified**
 
 ---
 
